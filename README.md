@@ -1,0 +1,1 @@
+# ochiq-kodli-loyiha
